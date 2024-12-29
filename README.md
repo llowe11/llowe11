@@ -1,1 +1,1 @@
-pick me boss
+пикми boss
